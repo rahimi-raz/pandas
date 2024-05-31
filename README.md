@@ -1,2 +1,2 @@
-Questions are coming from below website :
+Questions are from below website :
 https://www.stratascratch.com/
