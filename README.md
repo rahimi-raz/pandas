@@ -1,2 +1,2 @@
-Questions are from below website :
+Questions are from folowing website :
 https://www.stratascratch.com/
